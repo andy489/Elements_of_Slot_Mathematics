@@ -1,1 +1,1 @@
-# Elements_Of_Slot_Mathematics
+# Elements of Slot Mathematics
